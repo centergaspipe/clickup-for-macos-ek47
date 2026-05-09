@@ -1,4 +1,4 @@
-
+premium ClickUp for macOS Addon | tags + focus mode offers the most advanced ClickUp for macOS addon, with tags and focus mode. Ideal for professionals.
 
 
 
